@@ -1,0 +1,2 @@
+ i should study hard
+
